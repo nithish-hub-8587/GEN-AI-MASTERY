@@ -1,1 +1,1 @@
-# GEN-AI-MASTERY
+# GEN-AI-Mastery-Assessment-
